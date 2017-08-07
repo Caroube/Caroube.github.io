@@ -6,7 +6,7 @@ Les dattes gardent vos mouvements intestinaux lisses et sains en raison des prop
 
 **Avantages pour la perte de poids des dattes**
 
-Les dattes sont la meilleure option pour perdre votre poids corporel et bénéfique pour maintenir un poids santé tout au long de votre durée de vie. L'ajout de 4-5 dattes dans votre petit-déjeuner quotidien peut vous aider à dégager des kilos en trop.
+[Les dattes sont la meilleure option](http://carob.co/health/%D9%81%D9%88%D8%A7%D8%A6%D8%AF-%D8%A7%D9%84%D8%AA%D9%85%D8%B1/) pour perdre votre poids corporel et bénéfique pour maintenir un poids santé tout au long de votre durée de vie. L'ajout de 4-5 dattes dans votre petit-déjeuner quotidien peut vous aider à dégager des kilos en trop.
 
 **Avantages des dattes pour se débarrasser de la gueule de bois**
 
@@ -37,5 +37,5 @@ Les dattes n'ont pas de cholestérol et elles réduisent considérablement la li
 
 **Grande source de protéines**
 
-Les personnes conscientes de la santé peuvent passer à quelques dattes dans leur repas du matin pour obtenir les avantages des protéines et des fibres à partir de dattes qui favorisent le corps actif sans fatigue.
+Les personnes conscientes de la santé peuvent passer à quelques [dattes](https://fr.wikipedia.org/wiki/Phoenix_dactylifera) dans leur repas du matin pour obtenir les avantages des protéines et des fibres à partir de dattes qui favorisent le corps actif sans fatigue.
 Les dattes n'ont pas d'effets secondaires car elles sont des aliments biologiques naturels qui favorisent une bonne santé. Mais il est conseillé de consommer des dattes sous une forme purement fraiche ou sèche, car les dattes caramélisées ont moins de bénéfices et peuvent également augmenter le taux de glycémie dans votre corps, ce qui augmente le risque de diabète de type II. Il serait judicieux de consulter votre médecin avant d'ajouter des dattes à votre alimentation pour vos termes satisfaisants.

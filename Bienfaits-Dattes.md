@@ -1,4 +1,4 @@
-Comment les dattes peuvent-elles bénéficier votre santé?
+## Comment les dattes peuvent-elles bénéficier votre santé?
 
 **Bienfaits des dattes en lutte contre la constipation**
 
@@ -7,7 +7,7 @@ Les dattes gardent vos mouvements intestinaux lisses et sains en raison des prop
 **Avantages pour la perte de poids des dattes**
 
 Les dattes sont la meilleure option pour perdre votre poids corporel et bénéfique pour maintenir un poids santé tout au long de votre durée de vie. L'ajout de 4-5 dattes dans votre petit-déjeuner quotidien peut vous aider à dégager des kilos en trop.
- 
+
 **Avantages des dattes pour se débarrasser de la gueule de bois**
 
 La vitamine C, les protéines et les antioxydants présents dans les dattes peuvent également traiter votre gueule de rime grave que vous obtenez après la fête. Les dattes sont très bénéfiques pour votre corps et votre cerveau de récupérer la gueule de bois pour retrouver facilement votre travail.

@@ -1,6 +1,6 @@
 ## Carob for health care
 
-The carob seeds were used by the Romans as a unit of measure, then by the pharmaceutical industry as a substitute for chocolate ... What about their slimming power?
+The carob seeds were used by the Romans as a unit of measure, then by the pharmaceutical industry as a substitute for chocolate ... What about their [slimming power](http://carob.co/wiki/%d9%81%d9%88%d8%a7%d8%a6%d8%af-%d8%a7%d9%84%d8%ae%d8%b1%d9%88%d8%a8-%d9%84%d8%b5%d8%ad%d8%a9-%d8%a7%d9%84%d8%ac%d8%b3%d9%85/)?
 
 ### What is it
 
@@ -28,3 +28,7 @@ Do not consume during pregnancy and breastfeeding.
 References:
 
 [researchgate publication N°5989099](https://www.researchgate.net/publication/5989099_Some_compositional_properties_and_mineral_contents_of_carob_Ceratonia_siliqua_fruit_flour_and_syrup)
+
+[الخروب](http://carob.co/)
+
+[passeportsante](www.passeportsante.net)

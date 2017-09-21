@@ -1,6 +1,29 @@
-# Caroube.github.io
+## Carob for health care
 
-Dans cette étude, nous confirmons que les caroubes et les aliments traditionnels produits à partir de ces fruits, de la loupe de caroube et du sirop de caroube presentent de grands bienfaits sur la santé car: ils contiennent des niveaux élevés de glucides, de protéines, de calcium, de sodium, de potassium et de minéraux de fer et de faibles graisses par rapport à d’autres graines et noix d’huile. Compte tenu des propriétés nutritives évaluées, l’utilisation de fruits caroubes (C. siliqua) et de ses produits comme casse-croûte plutôt que de noix à haute teneur en huile est recommandée. En conséquence, les produits de caroube et de caroube contiennent des éléments d’importance vitale dans le métabolisme humain qui sont nécessaires pour une croissance plus saine et la prévention et la guérison des maladies. Ces produits ont donc été des sources importantes d’éléments nutritifs et d’éléments essentiels.
+The carob seeds were used by the Romans as a unit of measure, then by the pharmaceutical industry as a substitute for chocolate ... What about their slimming power?
+
+### What is it
+
+The carob tree spreads 6 to 10 meters high, its trunk thick all over the Mediterranean. Its fruit, carob, has the appearance of a brown pod that contains 12 to 16 seeds. The seeds are used to make locust bean gum, which contains a galactomannan.
+
+
+### How it works
+
+Carob gum is a thickener; to nearly 90%, it is not digestible. By swelling it acts as a mechanical appetite suppressant.
+
+
+### Scientific and clinical bases
+
+The thickening effect of carob gum has been very seriously studied in animals. In contrast, little or no clinical study on weight loss in humans.
+
+### Usual doses
+
+Extracts: 500 mg to 1000 mg per day before meals.
+
+
+### Precautions for use
+
+Do not consume during pregnancy and breastfeeding.
 
 References:
 
